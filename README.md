@@ -1,2 +1,1 @@
-# SD-EDUCATION-CLUB
-SD EDUCATION CLUB
+# Savitri Devi Education Club
